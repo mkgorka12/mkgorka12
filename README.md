@@ -1,9 +1,9 @@
 ## Hi there! 👋
 
 My name is Maciej and I'm a CS student at TUL 🎓.  
-Currently working as an intern in Ericsson as an Agentic AI developer 🤖.
+Currently working as an intern in Ericsson as an Agentic AI developer 🚀.
 
-I'm spending most of my free time on continous learning and programming 🚀💻.
+I'm spending most of my free time on continous learning and programming 💻.
 
 Besides that I really like:  
 - Hanging out with my family and friends 👨‍👩‍👧‍👦
